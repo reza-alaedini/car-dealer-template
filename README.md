@@ -1,2 +1,3 @@
 # A "News Theme" Designed by Me
-It includes some news for just Example from IRAN Sport news websites.
+It includes some picture of car for just example!
+I hope you enjoy it!❤
